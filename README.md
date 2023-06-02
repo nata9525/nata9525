@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nata9525
+- 👨‍💻 Python Developer
+- 🌱 Working on tiktok stuff
+- 💞️ I’m looking to collaborate with developers
+- 📫 How to reach me discord: Nata#9525
