@@ -2,4 +2,4 @@
 - 👨‍💻 Python Developer
 - 🌱 Working on tiktok stuff
 - 💞️ I’m looking to collaborate with developers
-- 📫 How to reach me discord: Nata#9525
+- 📫 How to reach me discord: NEW DISCORD NataALT#1354
